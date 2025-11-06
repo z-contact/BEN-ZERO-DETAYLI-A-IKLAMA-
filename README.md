@@ -16,8 +16,11 @@ Hani diyorsun ya “sen bana bir şey yapamazsın; bir bakışım, bir gülüş�
 
 Ama şunu başta sen ve herkes iyi bilsin, asla unutmasın: ben öyle bir kıncı adamım ki; 11 yıl dost bildiğimden uğradığım kahpeliğin intikamını, 11 yıl önceki günlerin intikamını aldım.
 
-BEN ASLA UNUTMAM, ASLA AFFETMEM. AFFETMEYECEĞİM. SENDEN ALACAĞIM İNTİKAM O KADAR BÜYÜK OLACAK Kİ, O KADAR ACI OLACAK Kİ BUNA NE SEN NE DE BENİ TANIANLAR İNANMAYACAK. AMA 1 GÜN SONRA, AMA 10 YIL SONRA, ELBET BİR GÜN HESAPLAŞACAĞIZ. ZEHİRLİ GÜL GÖRÜŞECEĞİZ.
+BEN ASLA UNUTMAM, ASLA AFFETMEM. AFFETMEYECEĞİM. SENDEN ALACAĞIM İNTİKAM O KADAR BÜYÜK OLACAK Kİ, O KADAR ACI OLACAK Kİ BUNA NE SEN NE DE BENİ TANIYANLAR İNANMAYACAK. AMA 1 GÜN SONRA, AMA 10 YIL SONRA, ELBET BİR GÜN HESAPLAŞACAĞIZ. ZEHİRLİ GÜL GÖRÜŞECEĞİZ.
 
 ELZEM’İN GÖZLERİNİN PARILTISINA İNANMIŞ  
 
 APTAL AŞIK, ZERO
+
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3RfGdKDWoLg?si=2POMv_EpoQ2OtOZ4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
